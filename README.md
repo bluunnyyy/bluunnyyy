@@ -1,16 +1,27 @@
-## Hi there 👋
+##
 
-<!--
-**bluunnyyy/bluunnyyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*!  .  .*
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<img width="1006" height="1001" alt="Untitled1773_20251218195413" src="https://github.com/user-attachments/assets/22250c2a-f40b-46ba-b62a-af9f118dcbb1" />
+
+
+
+
+
+
+  - - - - - - - - - - - - - - - - - - - - 
+  
+
+
+
+
+
+
+
+ ---------------> *c+h are always accepted btw  .*
+ - *always with kim !!*
+ - *might be pissed if i get booped so sorryz if im rude..* 
+
+
