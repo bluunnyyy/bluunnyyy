@@ -50,4 +50,4 @@
  - *might be pissed if i get booped so sorryz if im rude..* 
 
 
-https://open.spotify.com/playlist/75IeKzzBn8IZYLdcyJ8Mrv?si=THxtq4g-SoK4mSA2Gu6EQQ&pi=S62WCCelQNKlt
+
