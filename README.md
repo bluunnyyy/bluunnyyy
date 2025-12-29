@@ -5,23 +5,7 @@
 
 
 
-
-
-
 *!  .  .*
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
@@ -39,21 +23,11 @@
 
 
 
-
-
-
   - - - - - - - - - - - - - - - - - - - - 
   
-
-
-
-
 
 
 
  ---------------> *c+h are always accepted btw  .*
  - *always with kim !!*
  - *might be pissed if i get booped so sorryz if im rude..* 
-
-
-
