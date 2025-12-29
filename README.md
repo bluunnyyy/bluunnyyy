@@ -1,8 +1,7 @@
 ##
-<img width="1006" height="1001" alt="Untitled1850_20251229094207" src="https://github.com/user-attachments/assets/b95da61f-7870-4b7f-a83a-9a109cedc037" />
+
 
   
-
 
 
 *!  .  .*
@@ -17,12 +16,8 @@
 
 
 
+<img width="1006" height="1001" alt="Untitled1850_20251229094207" src="https://github.com/user-attachments/assets/2efe0079-6eba-4c0e-a626-585fef6ca257" />
 
-
-
-
-
-  - - - - - - - - - - - - - - - - - - - - 
   
 
 
