@@ -1,4 +1,4 @@
 ##
- im going insane
+ Awww ( i am NOT drawing that roblox visor) 
  
-![haircut-boy-do-do](https://github.com/user-attachments/assets/32bb3640-0080-4eb4-ba15-26e363e91072)
+<img width="1006" height="1001" alt="Untitled1877_20260105073901" src="https://github.com/user-attachments/assets/b042b6f7-c911-4cb5-ba63-fbe48a47231a" />
