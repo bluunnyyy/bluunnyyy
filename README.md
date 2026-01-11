@@ -5,5 +5,5 @@
 
 
  -----> •  *DO NOT BOOP*
- - • *im always with 2 friends because I want to c+h them for comfort*
-- •  *PLEASE WHISPER BECAUSE I GET DISTRACTED*
+ -  *im always with 2 friends because I want to c+h them for comfort*
+-   *PLEASE WHISPER BECAUSE I GET DISTRACTED*
