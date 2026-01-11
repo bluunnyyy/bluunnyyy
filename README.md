@@ -6,4 +6,4 @@
 
  -----> •  *DO NOT BOOP*
  -  *im always with 2 oomfs because I want to c+h and talk to them for comfort*
--   *iwc all the time if im upset or not in a good mood!! 
+-   *iwc all the time if im upset or not in a good mood!!*
