@@ -5,4 +5,4 @@
 
  im legit stupid
 
-- *???? im a loner sometimes* 
+ *???? im a loner sometimes* 
