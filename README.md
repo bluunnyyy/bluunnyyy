@@ -1,6 +1,5 @@
 ##  
 
-<font color="pastel yellow "> Some pastel yellow text </font>
 
 
    
