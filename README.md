@@ -1,8 +1,6 @@
-##  <!--
-Source - https://stackoverflow.com/q
-Posted by Dave Dopson, modified by community. See post 'Timeline' for change history
+##  
 
-<font color="pastel yellow "> Some green text </𝚏𝚘𝚗𝚝>
+<font color="pastel yellow "> Some green text </font>
 
 
    
