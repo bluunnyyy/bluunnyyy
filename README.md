@@ -1,4 +1,8 @@
 ##  
 
+(*womt decorated or wtv for this readme just uh stuff*) 
 
-![shedletsky-forsaken](https://github.com/user-attachments/assets/8e80ceac-bf6c-4880-b9a5-76ba17983d6b)
+hi! you will mostly see me near spawn sometimes disconnecting so much
+
+please PLEASE do not touch me and it pisses me off, ik its a pixel game but still dont.
+
