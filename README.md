@@ -5,6 +5,7 @@
 wip bruo
 
 
-<img width="4550" height="3552" alt="Untitled2003_20260221185958" src="https://github.com/user-attachments/assets/2d7724ab-6b05-4daf-a8c4-bc4e12dfbd57" />
+![durr-durr-emoji](https://github.com/user-attachments/assets/e3398392-5eb4-4ab4-b0eb-ede0af94f609)
+
 
 
