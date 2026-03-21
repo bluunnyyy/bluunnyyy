@@ -5,7 +5,7 @@
 wip bruo
 
 
-![durr-durr-emoji](https://github.com/user-attachments/assets/e3398392-5eb4-4ab4-b0eb-ede0af94f609)
+<img width="1137" height="885" alt="Untitled15_20260321001848" src="https://github.com/user-attachments/assets/7f3fd26e-3c32-45c6-92f4-a9e1e3873ea4" />
 
 
 
