@@ -2,5 +2,5 @@
 
 wip brou
 
- <img width="736" height="736" alt="de4d1ef1f4c4df9f8e1fb8880d5e71aa" src="https://github.com/user-attachments/assets/6d059a8d-2644-43cd-80f0-15a5d7afe442" />
+ <img width="500" height="281" alt="f16c5681f387f807749e9024a3e01dc9" src="https://github.com/user-attachments/assets/b8bf8c5c-4e5c-461a-8195-b42c2f915125" />
 
