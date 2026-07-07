@@ -8,7 +8,8 @@
 
 <img width="99" height="56" alt="db3tlz3-3f020ba9-f0d4-4a62-9861-9dc156790f30" src="https://github.com/user-attachments/assets/fb24662e-24db-443b-b172-3ab64a1c71f9" />
 
-<img width="99" height="57" alt="cole_stamp_by_equestriapegasis_d8mkdng-fullview" src="https://github.com/user-attachments/assets/048248d6-e1dc-4f42-bac1-aa282b7e861a" />
+<img width="99" height="56" alt="db3tvm1-8ed3f0ab-3458-4c20-bce1-1ca7d35ccc1c" src="https://github.com/user-attachments/assets/9f41b6ff-215c-48b9-b6a0-84f277c87a20" />
+
 
 
 <img width="99" height="56" alt="db3tofq-ff45abb0-d825-4186-a512-a9fe0d2db216" src="https://github.com/user-attachments/assets/931516ce-d65a-432d-a05d-6b1bd7122c40" />
