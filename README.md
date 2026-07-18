@@ -3,5 +3,4 @@
 
 
  
-<img width="500" height="330" alt="bfc8f4ba4cb3d6a23ac972be3e47fb30 (1)" src="https://github.com/user-attachments/assets/b41d2034-1607-4dd7-aca4-814cd0f2cde9" />
-
+<img width="268" height="205" alt="57d398935cf9a2182ea4f9f8bce98196" src="https://github.com/user-attachments/assets/1594cf90-76c5-4570-8b87-45b3ab2a12a2" />
