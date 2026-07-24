@@ -1,6 +1,7 @@
 ##
  
- <img width="268" height="205" alt="ee52d7d4523802ed80d028116687fe8b" src="https://github.com/user-attachments/assets/08d43c86-3aa6-412e-8de7-74a86d6d1abe" />
+ <img width="1192" height="670" alt="lloyd_statue_after_his_death_by_goninjago15_dmhdyuw-pre" src="https://github.com/user-attachments/assets/6c5dca3c-4ece-4e19-917d-8eb615684180" />
+
 
 
  
