@@ -1,6 +1,6 @@
 ## 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=bluunnyyy&label=Profile%20views&color=0e75b6&style=flat" alt="bluunnyyy" /> </p>
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=bluunnyyy&label=Profile%20views&color=339900&style=flat" alt="bluunnyyy" /> </p>
 
 <img width="480" height="253" alt="4ada540a34fcfd04f29cfd1b39af12e8" src="https://github.com/user-attachments/assets/684e60bf-a621-444e-aaef-ec5874a54efc" />
 
