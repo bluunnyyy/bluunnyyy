@@ -1,10 +1,5 @@
 ## 
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=bluunnyyy&label=Ninjas%20&color=339900&style=flat" alt="bluunnyyy" /> </p>
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=DBAF2F&vCenter=true&repeat=false&width=425&height=40&lines=%22heugh.....+I+don't+need+a+sword.%22)](https://git.io/typing-svg)
 
-<img width="480" height="253" alt="4ada540a34fcfd04f29cfd1b39af12e8" src="https://github.com/user-attachments/assets/684e60bf-a621-444e-aaef-ec5874a54efc" />
-
-
- 
-
-
+ <img width="498" height="281" alt="golden-ninja-golden-power" src="https://github.com/user-attachments/assets/ee91aef9-fe19-44bd-85af-4030848bb621" />
