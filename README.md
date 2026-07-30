@@ -1,23 +1,4 @@
 ##
 
-HUGE wip
 
-
-
-
-
-
-
-
-
-
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=44742A&center=true&vCenter=true&repeat=false&width=435&lines=kins)](https://git.io/typing-svg)
-
-
-
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+script&pause=1000&color=3B872A&center=true&vCenter=true&multiline=true&repeat=false&width=435&lines=007n7+(FORSAKEN)+)](https://git.io/typing-svg)
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Dancing+script&pause=1000&color=285C1D&center=true&vCenter=true&multiline=true&repeat=false&width=435&lines=Lloyd+%2C+Nya+%2C+Kai+(LEGO%3A+NinjaGO)+)](https://git.io/typing-svg)
+<img width="730" height="1069" alt="e8d8bc765bd6d425e13437e15d11049a" src="https://github.com/user-attachments/assets/33f154cc-7c8d-4494-8129-e51020fa9c6e" />
