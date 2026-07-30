@@ -21,5 +21,5 @@
 
 
 
-<img width="730" height="1069" alt="e8d8bc765bd6d425e13437e15d11049a" src="https://github.com/user-attachments/assets/e73c4b3d-fab0-4af3-b73d-3c174b4ff5b5" />
+<img width="230" height="230" alt="e8d8bc765bd6d425e13437e15d11049a" src="https://github.com/user-attachments/assets/e73c4b3d-fab0-4af3-b73d-3c174b4ff5b5" />
 
