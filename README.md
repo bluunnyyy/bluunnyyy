@@ -12,9 +12,9 @@
 
 
 
-- I LOVE to cuddle so plspslsl c+h if u want
+- I'd LOVE to cuddle so plspslsl c+h if u want
 
--  I sometimes will be afk or disconnect so many times ;-;
+-  Im sometimes afk or disconnect so many times ;-;
     - w2i!!!! 
 
 - im too lazy to be creative for my read me✌
