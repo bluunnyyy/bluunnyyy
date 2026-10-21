@@ -12,4 +12,4 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=cursive&pause=1000&color=F4F6D4&center=true&vCenter=true&repeat=false&random=true&width=435&lines=%22+Ninja+never+quits.+%22)](https://git.io/typing-svg)
+   [![Typing SVG](https://readme-typing-svg.demolab.com?font=cursive&pause=1000&color=F4F6D4&center=true&vCenter=true&repeat=false&random=true&width=435&lines=%22+Ninja+never+quits.+%22)](https://git.io/typing-svg)
