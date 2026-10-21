@@ -13,3 +13,9 @@
 
 
    
+(probably a wip.) 
+
+- i am a bit sensitive so pls don't say anything rlly mean to me pls...
+  - I do hang out w my friends a lot, sometimes Im always on discord tho or doomscrolling ya.
+         @baskinginthesunflowers <- my little feet massager 🥺
+    @Pych0 <- hello papi
